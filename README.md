@@ -2,7 +2,7 @@
 
 
 论坛地址：
-https://xiaoai.zulipchat.com/join/xjn6nnudz2idveeb634cxtzc
+https://xiaoai.zulipchat.com/join/oewku2or6k5vsmrww2iu6xyx/
 
 视频教程：
 https://www.youtube.com/@jx3%E5%B0%8F%E7%88%B1%E5%90%8C%E5%AD%A6/videos
